@@ -1,6 +1,6 @@
 ======================================================================
 
-Reaching Darkness Modpack is licensed through Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0)
+Reaching Darkness Modpack © 2023 by SholinXLX is licensed under CC BY-NC-ND 4.0 
 
 ======================================================================
 
